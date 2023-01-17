@@ -1,1 +1,1 @@
-https://senyor-pm.github.io/Watch/
+https://senyor-pm.github.io/Watch/Watch
